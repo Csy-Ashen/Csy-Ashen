@@ -1,5 +1,120 @@
 
 
 
+  A few info here ! :
 
-<img width="735" height="561" alt="suho   si-eun artwork" src="https://github.com/user-attachments/assets/24e857cf-5b2a-4757-9f4d-6d099229b5d1" />
+
+
+  If you're gonna be friends with me please don't be making drama and fake rumors .
+
+And don't be weird around me unless we are close and I match my weirdness with you !
+
+C + h freely ! , or interact without making it weird if we are just getting know eachother .
+
+Basic dni if you're homophobic , racist , sexist , I . c . e supporter .
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+  <img width="771" height="537" alt="image" src="https://github.com/user-attachments/assets/ecc7f5fa-001f-436e-90f7-15f9b12a3127" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
