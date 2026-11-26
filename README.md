@@ -2,4 +2,4 @@
 
 
 
-<img width="735" height="515" alt="_" src="https://github.com/user-attachments/assets/2933b4eb-b625-4054-9014-e727d7ddb78c" />
+<img width="735" height="561" alt="suho   si-eun artwork" src="https://github.com/user-attachments/assets/24e857cf-5b2a-4757-9f4d-6d099229b5d1" />
