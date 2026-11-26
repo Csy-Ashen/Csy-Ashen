@@ -13,6 +13,8 @@ C + h freely ! , or interact without making it weird if we are just getting know
 
 Basic dni if you're homophobic , racist , sexist , I . c . e supporter .
 
+If I don't respond to you i'm probably afk or offtab , so whisper me .
+
 
 
 
